@@ -29,7 +29,7 @@ Your access to the Bot may be terminated at any time for any reason, including v
 
 ## 7. Contact Information
 
-For any questions or concerns regarding these Terms, please contact [Your Contact Information].
+For any questions or concerns regarding these Terms, please contact Skogrine#0 on discord.
 
 ---
 
