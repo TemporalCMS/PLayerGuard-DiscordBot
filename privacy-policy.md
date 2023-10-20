@@ -36,7 +36,7 @@ This Privacy Policy may be updated from time to time. We encourage you to review
 
 ## 7. Contact Information
 
-If you have questions or concerns about this Privacy Policy or the data collected by the Bot, please contact [Your Contact Information].
+If you have questions or concerns about this Privacy Policy or the data collected by the Bot, please contact Skogrine#0 on discord.
 
 ---
 
